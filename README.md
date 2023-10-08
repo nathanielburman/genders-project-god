@@ -18,3 +18,6 @@ The technicality of my God legal status.
 8. always reapect each others different god status genders
 
 9. god genders are status genders that help us focus more on god through the emulation of god status; other genders do fit under this genderbin status, while some genders are more popular there is none more powerful in status than god gender
+
+Since 2021...
+i invented the god gender in 2020-2021 but officially added it to the Gender Census in 2023 first quarter.
