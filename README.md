@@ -21,3 +21,5 @@ The technicality of my God legal status.
 
 Since 2021...
 i invented the god gender in 2020-2021 but officially added it to the Gender Census in 2023 first quarter.
+
+Gods can use * pronouns to differentiate from genderless people. *He/*Him *They/*Them *She/*Her
